@@ -1,3 +1,6 @@
 # Syno-
 Syno Executor 
-coming soon!#1 Android keyless Executor!!
+error.. please try again... 
+
+Syno Executer 💫
+#1 Android keyless Executor!!
